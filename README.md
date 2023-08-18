@@ -4,3 +4,4 @@
 ![step_3 1](https://github.com/Heights01/My_first_summit/assets/129839233/49d2ce80-0c75-4c4e-a3cc-edb0d8686a75)
 ![step_4](https://github.com/Heights01/My_first_summit/assets/129839233/3184361d-b99f-4eae-bc05-287242ab3960)
 ![step_5](https://github.com/Heights01/My_first_summit/assets/129839233/15adeaa3-9eb5-4617-afee-f209ffabf528)
+![step_6](https://github.com/Heights01/My_first_summit/assets/129839233/7d3af5bb-fc6d-4b71-bdc5-0eee29279587)
